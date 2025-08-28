@@ -1,2 +1,2 @@
 # rydoria-gov
-A site of the government of the People's Republic of Rydoria (Politics and War)
+Rydoria is a nation led by La entiqque Theodore on the continent of South America. Rydoria's government is a Dictatorship with very conservative social policies. Economically, Rydoria favors extremely left wing policies. The official currency of Rydoria is the Pound Sterling. At 11 days old, Rydoria is a new nation. Rydoria has a population of 432,637 and a land area of 2,450.00 sq. miles. This gives it a national average population density of 176.59. Pollution in the nation is a disaster. The citizens' faith in the government is sufficient with an approval rating of 56.3945%.
